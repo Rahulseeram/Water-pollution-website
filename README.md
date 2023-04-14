@@ -1,0 +1,1 @@
+Water pollution is the release of substances into bodies of water that makes water unsafe for human use and disrupts aquatic ecosystems. Water pollution can be caused by a plethora of different contaminants, including toxic waste, petroleum, and disease-causing microorganisms.
